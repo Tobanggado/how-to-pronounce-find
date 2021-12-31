@@ -1,37 +1,26 @@
-## Welcome to GitHub Pages
+<h1>How To Pronounce Find</h1>
 
-You can use the [editor on GitHub](https://github.com/Tobanggado/how-to-pronounce-find/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+<div id="toc" style="background: #f9f9f9;border: 1px solid #aaa;display: table;margin-bottom: 1em;padding: 1em;width: 350px;"><p class="toctitle" style="font-weight: 700;text-align: center;">Content</p><ul class="toc_list"><li><a href="#toc-0">Learn Extra With +plus</a></li><li><a href="#toc-1">Check Prep For Each Learning Fashion</a></li><li><a href="#toc-2">Testing In Michigan</a></li><li><a href="#toc-3">Saying Chinese Names</a></li><li><a href="#toc-6">Shakespeare Limitless: Episode 16</a></li><li><a href="#toc-7">Metropolis Guides</a></li></ul></div>
+<p>Ben and David are interviewed by Rebecca Sheir. We invite you to personally participate in the life of the Folger Shakespeare Library by making a tax-deductible donation to the institution. Become a teacher member to get entry to lesson plans and skilled improvement. British Vogue posted a video of Rihanna discussing her trend line, Fenty. And whereas the clothes are fabulous, the Internet was extra hung up on the best way the singer pronounces her name.</p>
+<ul><li>That’s why ACT supplies a selection of check prep options for every studying type.</li><li>Dr. Paul Richardson, the chief medical officer for Conway Medical Center, mentioned that makes a distinction within the data they're seeing.</li><li>One particular person said they developed low blood stress, and the other mentioned they turned depressed with suicidal ideas.</li><li>In 1885, the realm was a rancho, made up of mostly uninhabited land used for farming.</li></ul>
+<p>“Crucial.” Something that’s essential is one thing that’s important, okay? If one thing is crucial, it’s going to be essential. When the chosen words are presented to college students, they gained't be marked as unfamiliar or familiar however merely introduced as one list. To discuss these two components of the OP experience, we have brought together a father and son group who are uniquely certified to discuss it.</p>
+<h2 id="toc-0">Learn More With +plus</h2>
+<p>Chavez Ravine was named after Julian Chavez, a rancher who served as assistant mayor, city councilman and, finally, considered one of L.A. As it seems other Chavezes have been equally suffering from conflicting pronunciations. Rodeo Road, then again, bears the identical pronunciation as that of the aggressive cowboy sport. Nevertheless, that doesn’t cease starry-eyed visitors from getting confused — or winding up on Rodeo Road with a considerably completely different purchasing expertise than the one they were expecting. Despite the Spanish name, El Segundo was not named by a Spanish explorer (counterintuitive, no?). In 1885, the realm was a rancho, made up of largely uninhabited land used for farming.</p>
+<div style='text-align:center'><iframe width='561' height='310' src='https://www.youtube.com/embed/KjUnfiFTNuk' frameborder='0' alt='how to pronounce find' allowfullscreen></iframe></div>
+<p>A study of the fixes, airport names, and VORs will present names of celebrities and fascinating geographical points to all who take the time to look. Compare your aeronautical chart with the atlas that you all carry and be taught a few of the native factors of interest while you are looking the window. Unfortunately, there is no consensus on the pronunciation of Kinnickinnic.</p>
+<h3 id="toc-1">Take A Look At Prep For Every Studying Fashion</h3>
+<p>Waldie, so that they started to name it lahs-AN-jeh-leez or law-SANG-gleez. As extra white Anglo families from different elements of the U.S. migrated to Los Angeles to get pleasure from good climate and low cost land, they branched outward from downtown to settle and start cities in surrounding areas. That’s why lots of the smaller cities in L.A. “It was designed to make Southern California really feel more romantic,” Waldie stated.</p>
+<h2 id="toc-2">Testing In Michigan</h2>
+<p>It's an unnatural accent for Shakespeare in an identical sort of means that a contemporary theater with its proscenium arch is so completely different from the Globe-like dynamic. The accent of authentic pronunciation opens up your physique and your voice and your strategy to the textual content in a method that a more fashionable accent doesn't. You know, it is like going to Shakespeare's Globe. Do you see an genuine replica of Shakespeare's Globe?</p>
+<h3 id="toc-3">Pronouncing Chinese Names</h3>
+<p>Y follows the identical rules as i; it is not invariably a diphthong. Learn and keep in mind the pronunciation of every new word as you encounter it. My vocabulary could be very rudimentary, but but I know a lot of exceptions. Stack Exchange community consists of 178 Q&A communities together with Stack Overflow, the most important, most trusted online group for builders to learn, share their knowledge, and construct their careers. One of my favorite actions is making an attempt to hash out a sense with my wife, bouncing concepts off of her.</p>
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+<p>Regardless of their origin, there are not any indicators in these words that tells us the S shall be silent; they're all just particular exceptions that we should memorize. While there are some constant, reliable guidelines relating to the pronunciation of S when it's hooked up to a word, it’s a bit more difficult for words that naturally finish in S (or S + silent E). However, there are nonetheless some conventions we will comply with which may be often reliable. Online dictionaries usually have the phonetic pronunciation listed under the word so you presumably can comply with along and take a look at saying the word yourself. Finish the word by saying “koh-nee-oh-sis.” Make sure to make use of a hard C-sound, like the phrases crab or coil, if you start the final root of the word.</p>
+<h3 id="toc-5">Florence Pharmacy Testing Massive Variety Of Folks For Covid</h3>
+<p>Phrases which have labored for me include, “Great to see you again. My name is pronounced Roo-CHEEK-ah, like your cheek.” or “I wished to shortly say that my name is pronounced…” or I’ll simply repeat my name correctly after they’ve mispronounced it. Once they say it accurately, I transfer on rapidly. Not only is it better so that you just can have your name pronounced correctly, it'll hopefully encourage others to also insist on right pronunciation as nicely.</p>
 
-### Markdown
+<p>Although if you'll like to make use of the extra boring "phenomenons," the other plural is technically right as properly. Sometimes exponentially get exponentially more durable to say the more you attempt to say it. There are too many As for this one to roll off the tongue simply, and when you're questioning what it means, you are not alone.</p>
+<h2 id="toc-7">City Guides</h2>
+<p>Is also not the identical as ⟨œ⟩ seen in some American dictionaries. ⟨œ⟩ in those dictionaries is merely a notational conference and does not correspond to any vowel in any accent of English, so a transcription containing ⟨œ⟩ cannot be transformed to 1 that makes use of this key. In the various dialects with the wine–whine merger, such as RP and most kinds of General American. For extra information on this sound, see voiceless labialized velar approximant.</p>
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Tobanggado/how-to-pronounce-find/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+<p>Don’t spend a very lengthy time speaking about how unfamiliar you're with their name. If you realize that you’ve been saying a colleague’s name incorrect, apologize and ask for the correct pronunciation. If you hear someone else mispronouncing a colleague’s name when they’re not around, step in and proper them gently. The word spelled f-i-n-a-n-c-e has two widespread pronunciations, one accenting the first syllable and the other accenting the second. English etymology, nonetheless, supplies no indication of which pronunciation is most well-liked and which is more commonly used. Specifically, we review videos posted on YouTube by 100 distinguished finance students, rated as extremely productive researchers, Nobel Laureates, and members of editorial boards of top journals.</p>
